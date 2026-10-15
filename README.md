@@ -3,3 +3,5 @@ NOT_MY_MAPS_GO_SUPPORT_CTORETTO IN HIS PATREON NOT MINE ASK FOR PERMISSION BEFOR
  also there is other stuff respect licensing n shit
 
 also u can steal my server script idk its full chat
+
+ma server if u care https://acstuff.club/s/q:race/online/join?ip=158.179.202.241&httpPort=8081
